@@ -1,0 +1,8 @@
+- 👋 Olá, meu nome é guilherme leite de sousa.
+- 👀 Sou estudante do 1f, leonardo vilas boas.
+- 🌱 Estou aprendendo a usar a plataforma.
+- 💞️ Nas minhas horas vagas escuto musica.
+- 📫 Meu sonho é ser rico.
+- 😄 Meu contato (00001116284170sp@al.educacao.sp.gov.br)
+- ⚡
+- - ![](https://media.tenor.com/ZARBViZffU4AAAAM/hd-smirk.gif)
